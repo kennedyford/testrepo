@@ -1,1 +1,1 @@
-# ur moms still a hoe son
+# pish posh, sir!
